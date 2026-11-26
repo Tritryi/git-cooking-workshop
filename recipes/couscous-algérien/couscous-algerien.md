@@ -12,13 +12,11 @@
 - 2 oignons
 - 3 tomates
 - 1 boîte de pois chiches
-- 5 litres d'huile d'olive
+- 4 cuillères à soupe d'huile d'olive
 - 2 cuillères à soupe de concentré de tomate
 - 1 cuillère à café de paprika
 - 1 cuillère à café de cumin
-- 3 litres de lait
 - Sel et poivre
-- 500 g de sucre
 
 ## Préparation
 
